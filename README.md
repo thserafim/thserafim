@@ -1,6 +1,6 @@
-🎓 **Graduando em Engenharia de Software** <br>
+🎓 **Graduado em Engenharia de Software** <br>
 🚀 **Focado em Desenvolvimento Java** <br>
-💼 **Em busca de um Estágio** <br>
+💼 **Em busca de uma oportunidade** <br>
 
 ##  
 
